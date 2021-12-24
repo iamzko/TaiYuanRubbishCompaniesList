@@ -1,1 +1,2 @@
 # TaiYuanRubbishCompaniesList
+说明：来源于热心网友
